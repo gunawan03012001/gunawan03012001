@@ -25,3 +25,6 @@ saya adalah seorang aktifis lingkungan bidang koordinator lapangan
 [![](https://visitcount.itsvg.in/api?id=gunawan03012001&icon=3&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+
+
+
