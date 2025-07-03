@@ -1,5 +1,5 @@
 # 💫 About Me:
-saya adalah seorang aktifis lingkungan bidang koordinator lapangn
+**saya adalah seorang aktifis lingkungan bidang koordinator lapangn**
 
 
 ## 🌐 Socials:
